@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Creator-Ken
+- 👋 Hi, I’m Lee Yena
 - 👀 I’m interested in fashion designing and styles , merchandise and graphic designing   
 - 🌱 I’m currently learning internship
 - 💞️ I’m looking to collaborate with some buisness or enterprenuers 
